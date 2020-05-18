@@ -1,7 +1,7 @@
 # Help.DRC.congo-
 
 Welcome everyone we really glad to see how much you
-Care for people in congo it's to sand to see how most the people lose everything 
+Care for people in congo it's to sad to see how most the people lose everything 
 But our organization is working on everything we can , to see if At list to see if we can be able to help however 
 We can
  ![F54B8A6A-877C-45C4-B184-50DF63F3FB0C](https://user-images.githubusercontent.com/59498844/82209982-d8bce180-98d3-11ea-96f2-2636fe369856.jpeg)
