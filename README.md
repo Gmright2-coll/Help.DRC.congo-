@@ -14,6 +14,10 @@ This poor people
  
 To have a heart of helping is in you , imagine of this time situation this people the don't have no one to provide mask 😷 for this them the is 95% chance For people to get sick because first thing the is not social distances 
 Because the gover it doesn't really care about  them  
+The heart of giving it can come inside you if you want to help this people at who are in Africa who are crying right now 
+It's important to help the people who at there crying they don't have anything to eat because life is to hard for people up there 
+The kindness in you can tell how this people up there crying and dying because they don't have anything in the stomach 
+
 
 ![28D07418-4437-4350-B634-11F921A72A6E](https://user-images.githubusercontent.com/59498844/82209986-da86a500-98d3-11ea-8af0-318c994ea09f.jpeg)
 Together as young people we can work in one to bring the change it doesn't matter where you came from but if you Want to make a change please 
